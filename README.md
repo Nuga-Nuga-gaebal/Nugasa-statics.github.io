@@ -1,0 +1,1 @@
+# Nugasa-statics.github.io
